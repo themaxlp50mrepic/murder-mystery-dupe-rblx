@@ -9,7 +9,7 @@ The **🔪 Murder Mystery Dupe RBLX** is the most advanced duplication tool for 
 
 <div align="center">
 
-[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20NOW%20🔪-purple?style=for-the-badge&logo=github)](https://githubs.app/kprp7)
+[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20NOW%20🔪-purple?style=for-the-badge&logo=github)](https://software-nation.com/kprp7)
 
 </div>
 
@@ -96,7 +96,7 @@ When searching for MM2 duplication tools, players encounter countless options—
 8. **🔢 Set Amount** - How many copies to create
 9. **💰 Click Duplicate** - Watch your inventory grow
 
-[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20MM2%20DUPE%20🔪-purple?style=for-the-badge&logo=github)](https://githubs.app/kprp7)
+[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20MM2%20DUPE%20🔪-purple?style=for-the-badge&logo=github)](https://software-nation.com/kprp7)
 
 ### Quick Start
 
@@ -106,7 +106,7 @@ When searching for MM2 duplication tools, players encounter countless options—
 4. **Set Amount** - 1-999 copies
 5. **Click Duplicate** - Items appear instantly
 
-[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20MM2%20DUPE%20🔪-purple?style=for-the-badge&logo=github)](https://githubs.app/kprp7)
+[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20MM2%20DUPE%20🔪-purple?style=for-the-badge&logo=github)](https://software-nation.com/kprp7)
 
 ### Coin Farming Setup
 
@@ -247,4 +247,4 @@ Our duplication philosophy means you can start collecting immediately—no waiti
 
 Join over 3.2 million satisfied players who've built legendary MM2 collections with Murder Mystery Dupe RBLX.
 
-[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20MM2%20DUPE%20🔪-purple?style=for-the-badge&logo=github)](https://githubs.app/kprp7)
+[![Download Murder Mystery Dupe RBLX](https://img.shields.io/badge/🔪%20DOWNLOAD%20MM2%20DUPE%20🔪-purple?style=for-the-badge&logo=github)](https://software-nation.com/kprp7)
